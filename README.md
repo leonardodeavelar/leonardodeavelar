@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @leonardodeavelar
+- 👀 I’m interested in work remotely for US, Europe or Canadian companies  
+- 🌱 I’m currently learning data analytics, data visualization and python
+- 💞️ I’m looking to collaborate on logistics process and planning improvements using B
